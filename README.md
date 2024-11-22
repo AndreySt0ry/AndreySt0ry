@@ -1,4 +1,4 @@
-- 👋 Hi, Im AndreySt0ry
+- 👋 Hi, Im AndreySt0ry...)
 - 👀 I’m interested in ..
 - 🌱 I’m currently learning ..
 - 💞️ I’m looking to collaborate on ..
